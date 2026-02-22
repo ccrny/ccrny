@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true)
+ ![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true) <- 90% of these is just me >_<
 
 
 
