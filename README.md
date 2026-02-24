@@ -19,6 +19,6 @@
 </p>
 
  <p align="center">
-  pleeeeease sign my ata strawpage msgs will take days to even appear
+  pleeeeease sign my ata over my strawpage !!! gimmicks will take days to appear
 </p>
 
