@@ -22,5 +22,3 @@
   pleeeeease sign my ata strawpage msgs will take days to even appear
 </p>
 
-
-![](https://i.pinimg.com/736x/f8/d9/91/f8d9919b02e1c05b4cdc1641df1ac63b.jpg)
