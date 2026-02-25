@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true) <- 90% of these r just me >_<  I CANT CENTER THIS SHIT WITHOUT BREAKING IT OMFG HELP ME. if we get to 500 im posting feet pics
+![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true) <- 90% of these r just me >_<  I CANT CENTER THIS SHIT WITHOUT BREAKING IT OMFG HELP ME. if we get to 500 im posting feet pics HOW AM I AT 700 DUDE STOP  
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
