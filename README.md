@@ -1,13 +1,7 @@
-![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true) <- i love you all watttttt 800 O_O
+![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true) <- i love you all
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=a91gtno4z4u5kkow6p8ahvgen&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=355e7a&bar_color_cover=false&mode=dark">
   </a>
  </p>
-
-
- <p align="center">
-  pleeeeease sign my ata over my strawpage !!! gimmicks will take days to appear
-</p>
-
