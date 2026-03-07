@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true) <- i love you all
+![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings&abbreviated=true) <- i love you all 𑣲 deeewwwddd?....... 9000 millions 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
