@@ -7,6 +7,6 @@
  </p>
 
 
-[**rentry**](https://rentry.co/Iovelyassistaff) [**ata**book](ccrny.atabook.org) [**straw**page](ilovejanka.straw.page) [**pronouns**cc](https://pronouns.cc/@ccrny) discord: ccrny
+[**rentry**](https://rentry.co/Iovelyassistaff) [**ata**book](https://ccrny.atabook.org) [**straw**page](https://ilovejanka.straw.page) [**pronouns**cc](https://pronouns.cc/@ccrny) discord: ccrny
 
 this is stupid how do u center things with linkss,,,,,,,, die
