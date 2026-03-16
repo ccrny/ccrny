@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings) 𑣲 wowww u guys loveeee meeeeee ohmaigoshhhh stawpp uno thouie
+![](https://komarev.com/ghpvc/?username=ccrny&color=355e7a&style=plastic&label=cornlings) 𑣲 wowww u guys loveeee meeeeee ohmaigoshhhh stawpp
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
